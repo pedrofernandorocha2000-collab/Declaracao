@@ -1,2 +1,2 @@
-# declaracao
-Declaraçao especialmente para minha mulher
+# Declaração
+Declaração especialmente para minha mulher
